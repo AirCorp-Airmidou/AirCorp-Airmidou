@@ -2,7 +2,7 @@
 - 👀 I’m interested in sport
 - 🌱 I’m currently learning programation
 - 💞️ I’m looking to collaborate with influent people
-- 📫 How to reach me @_airmidou_
+- 📫 How to reach me _airmidou_ on ig 
 - ⚡ Fun fact: I'm tallest than you 
 
 <!---
